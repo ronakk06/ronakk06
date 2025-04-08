@@ -2,7 +2,7 @@
 - 👀 I’m interested in HACKING!!
 - 🌱 I’m currently studing in class 10th..
 - 💞️ I’m looking for someone who can teach me HACKING..
-- 📫 You can DM me on instagram as "ronakk_06"
+- 📫 You can DM me on instagram as "ronakk_kumar_"
 
 <!---
 ronakk06/ronakk06 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
